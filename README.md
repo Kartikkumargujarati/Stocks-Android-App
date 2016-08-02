@@ -1,1 +1,0 @@
-# Stocks-Android-App
